@@ -1,0 +1,94 @@
+# Võ Hữu Tài – MSSV: 24030355
+
+**Tên sách: CHO TÔI XIN MỘT VÉ ĐI TUỔI THƠ**
+
+**Tác giả: Nhà văn Nguyễn Nhật Ánh**
+
+**Nhà xuất bản: Nhà xuất bản Trẻ**
+
+**Năm xuất bản: Năm 2008**
+
+**Giải thưởng nổi bật: Giải thưởng Văn học ASEAN 2010, Giải thưởng Sách hay 2009.**
+
+Là một sinh viên Khoa Truyền thông số, em thường tiếp xúc với rất nhiều nội dung nhanh, từ video ngắn, hình ảnh, mạng xã hội cho đến những sản phẩm truyền thông được thiết kế để thu hút sự chú ý trong vài giây. Vì vậy, khi đọc một cuốn sách như “Cho tôi xin một vé đi tuổi thơ”, em có một cảm giác khá đặc biệt. Cuốn sách không có những tình tiết quá phức tạp, cũng không cố gắng tạo ra những điều quá lớn lao. Ngược lại, tác giả đưa em trở về với những điều rất nhỏ: một nhóm bạn chơi với nhau, những trò nghịch ngợm, những lần bị người lớn mắng, những suy nghĩ có phần ngốc nghếch nhưng rất thật của trẻ con. Chính sự giản dị đó lại khiến em đọc chậm hơn và suy nghĩ nhiều hơn.
+
+Tác phẩm “Cho tôi xin một vé đi tuổi thơ” của nhà văn Nguyễn Nhật Ánh được Nhà xuất bản Trẻ phát hành lần đầu vào năm 2008, kể về chuyến trở về tuổi thơ cùng tình bạn của bốn bạn nhỏ. Nhà xuất bản cũng giới thiệu đây là một câu chuyện có thể dành cho cả người trẻ lẫn người lớn, bởi đằng sau những trò nghịch ngợm là những suy nghĩ về cuộc sống và cách người lớn nhìn trẻ em.
+
+1. **Cảm nhận chung của em về cuốn sách**
+
+Điều đầu tiên em cảm nhận được khi đọc cuốn sách là sự gần gũi. Nhân vật không phải những con người đặc biệt hay có cuộc sống phi thường. Đó chỉ là những đứa trẻ với những suy nghĩ rất riêng và một thế giới tưởng tượng mà người lớn đôi khi không hiểu được. Bốn nhân vật chính gồm Cu Mùi, Hải Cò, Tủn và Tí Sún tạo nên một nhóm bạn rất tự nhiên. Mỗi người có một tính cách, nhưng khi ở cạnh nhau, các bạn tạo ra cả một thế giới riêng của tuổi thơ.
+
+Em thích nhất ở cuốn sách là cách Nguyễn Nhật Ánh không nhìn trẻ con bằng ánh mắt của một người lớn đang dạy đời. Tác giả đã để cho trẻ con được suy nghĩ, được đặt tên cho sự vật theo cách của mình, được bày trò và đôi khi được làm những điều mà người lớn cho là ngớ ngẩn. Chính vì thế, tuổi thơ trong sách không phải một bức tranh hoàn hảo. Nó có cả niềm vui, nỗi buồn, sự giận dỗi, những lần hiểu lầm và cả những trò nghịch khiến người lớn đau đầu. Nhưng tất cả đều rất thật.
+
+Em cũng ấn tượng với cách tác phẩm đặt người đọc vào hai góc nhìn: góc nhìn của một đứa trẻ và góc nhìn của một người đã trưởng thành nhìn lại tuổi thơ. Nhà xuất bản Trẻ từng giới thiệu tác phẩm có những đoạn mang màu sắc tạp bút, trong đó người trưởng thành suy ngẫm về thời thơ ấu. Điều này làm cho cuốn sách không chỉ là câu chuyện dành cho trẻ em mà còn là một cuộc trò chuyện với những người đã lớn.
+
+Trước khi đọc cuốn sách, em thường nghĩ tuổi thơ đơn giản là khoảng thời gian mình còn nhỏ, chưa có nhiều trách nhiệm. Nhưng sau khi đọc, em nhận ra tuổi thơ còn là một cách nhìn thế giới. Trẻ con có thể nhìn một chuyện rất bình thường thành một điều thú vị. Một căn phòng, một con đường, một người bạn hay một trò chơi cũng có thể trở thành cả một thế giới. Người lớn thường nhìn mọi thứ bằng sự hợp lý, còn trẻ con nhìn bằng trí tưởng tượng.
+
+Có một điều khiến em suy nghĩ khá lâu: khi còn nhỏ, chúng ta luôn muốn lớn thật nhanh. Lúc bé, em từng nghĩ người lớn có rất nhiều tự do, muốn làm gì cũng được và không phải nghe người khác nhắc nhở. Nhưng khi lớn lên, em mới hiểu rằng trưởng thành đi kèm với rất nhiều trách nhiệm. Học tập, công việc, tiền bạc, các mối quan hệ và những áp lực hằng ngày khiến chúng ta đôi khi nhớ cảm giác được sống vô tư như ngày còn nhỏ.
+
+Khi nhỏ, chúng ta luôn nghĩ rằng chỉ cần chúng ta cứ vẫn mãi như trẻ con như này thì vui biết bao nhiêu. Nhưng đó chỉ là những ước muốn của tuổi trẻ còn ngây thơ, mỗi chúng ta đều phải trải qua thời gian từ trẻ con đến trưởng thành rồi già đi. Đó là quy luật của tự nhiên không thể thay thế được.
+
+Trong thời gian đó cũng có rất nhiều kỉ niệm khó quên, khi đọc cuốn sách này thì em cũng dường như cảm thấy được một phần tuổi thơ mình thông qua những câu chuyện mà nhà văn Nguyễn Nhật Ánh kể. Đó không phải là hình ảnh gì quá đặc biệt, nhưng đó là một hình ảnh luôn được em khắc sâu trong tuổi thơ và luôn muốn quay lại tuổi thơ.
+
+Vì vậy, nhan đề “Cho tôi xin một vé đi tuổi thơ” đối với em không đơn giản là mong muốn quay ngược thời gian. Em hiểu nó giống như một lời xin phép để mình được tạm dừng lại, nhớ về con người của mình ngày trước. Chúng ta không thể thật sự quay lại tuổi thơ, nhưng có thể giữ lại một phần sự hồn nhiên, tò mò và chân thành của mình.
+
+1. **Những điều em tâm đắc nhất**
+
+**3.1. Trẻ con có một thế giới riêng mà người lớn cần biết lắng nghe**
+
+Điều em tâm đắc đầu tiên là cách cuốn sách cho thấy trẻ con không phải những người lớn chưa hoàn thiện. Các bạn nhỏ có cách suy nghĩ riêng, có những câu hỏi riêng và có cả những lý do riêng cho hành động của mình. Có những việc người lớn nhìn vào thấy vô lý, nhưng đối với trẻ con lại rất có ý nghĩa.
+
+Điều này khiến em liên tưởng đến việc làm nội dung cho từng nhóm đối tượng. Muốn truyền đạt một thông điệp tốt, trước hết phải hiểu người nhận thông điệp đang nghĩ gì và cảm nhận như thế nào. Người lớn không thể chỉ dùng cách nhìn của mình để quyết định điều gì là đúng với trẻ con. Với truyền thông cũng vậy, nếu không hiểu khán giả, một nội dung dù được đầu tư đẹp đến đâu vẫn có thể không chạm được đến người xem.
+
+**3.2. Tình bạn thời thơ ấu rất đơn giản nhưng đáng nhớ**
+
+Em rất thích tình bạn của Cu Mùi, Hải Cò, Tủn và Tí Sún. Các bạn có thể giận nhau vì những chuyện rất nhỏ nhưng cũng nhanh chóng tìm cách chơi với nhau. Tình bạn ấy không cần những lời hứa lớn lao. Chỉ cần cùng nhau đi học, cùng chơi, cùng tưởng tượng và cùng trải qua những chuyện vụn vặt cũng đủ để trở thành ký ức.
+
+Khi lớn lên, các mối quan hệ thường trở nên phức tạp hơn. Con người có thể quan tâm đến nhau nhưng lại ngại thể hiện. Đôi khi chúng ta còn cân nhắc xem một mối quan hệ có mang lại lợi ích hay không. Đọc về tình bạn của những đứa trẻ khiến em nhớ rằng có một thời mình từng kết bạn chỉ vì thấy hợp nhau, chứ không cần một lý do nào khác.
+
+**3.3. Đừng để việc trưởng thành làm mất đi sự tò mò**
+
+Một điểm em rất thích ở cuốn sách là trí tưởng tượng của trẻ con. Các bạn nhỏ không chấp nhận thế giới chỉ có một cách gọi và một cách hiểu. Các bạn tự đặt tên, tự suy luận và tạo ra những luật lệ riêng. Điều đó đôi khi tạo ra những tình huống rất buồn cười, nhưng cũng cho thấy trẻ con có khả năng quan sát và sáng tạo rất tự nhiên.
+
+Là sinh viên Truyền thông số, em thấy đây là điều rất đáng học. Công việc truyền thông cần ý tưởng mới, cách kể chuyện mới và khả năng nhìn một vấn đề theo nhiều góc độ. Nếu quá quen với những công thức có sẵn, em rất dễ tạo ra những sản phẩm giống người khác. Vì vậy, em nghĩ mình cần giữ lại một phần sự tò mò của trẻ con: dám hỏi, dám thử và dám nhìn một vấn đề theo cách khác.
+
+- **Những câu nói em tâm đắc**
+
+**“Tôi viết cuốn sách này không dành cho trẻ em. Tôi viết cho những ai từng là trẻ em.”**
+
+Đây là câu em thích nhất. Chỉ một câu nhưng gần như đã nói được tinh thần của cả cuốn sách. Khi còn nhỏ, chúng ta đọc để thấy mình trong câu chuyện. Khi lớn lên, chúng ta đọc để nhớ lại mình đã từng là ai. Với em, đây cũng là lý do một cuốn sách viết về trẻ em lại có thể khiến người lớn xúc động.
+
+**“Cuộc sống thật là buồn chán và tẻ nhạt.”**
+
+Câu mở đầu nghe có vẻ rất đơn giản nhưng lại thú vị vì nó xuất phát từ suy nghĩ của một cậu bé tám tuổi. Em thích cách tác giả dùng suy nghĩ tưởng như rất trẻ con để mở ra một câu chuyện về ý nghĩa của cuộc sống và cách con người nhìn thế giới.
+
+**“Nhiều người sợ nỗi buồn. Nhưng tôi không sợ.”**
+
+Em tâm đắc với câu này vì cuộc sống không thể lúc nào cũng vui. Có những nỗi buồn giúp mình hiểu bản thân hơn, biết trân trọng người khác hơn và trưởng thành hơn. Em nghĩ điều quan trọng không phải là né tránh mọi nỗi buồn mà là biết đối diện với nó.
+
+**“Trẻ con tìm thấy tất cả ở nơi chẳng có gì còn người lớn chẳng tìm được gì trong tất cả.”**
+
+Câu này khiến em suy nghĩ nhiều về sự khác nhau giữa trẻ con và người lớn. Trẻ con có thể vui với một món đồ rất đơn giản, trong khi người lớn đôi khi có rất nhiều thứ nhưng vẫn cảm thấy thiếu. Em hiểu đây là một lời nhắc rằng đôi khi chúng ta cần nhìn cuộc sống chậm hơn để nhận ra những điều nhỏ bé quanh mình.
+
+1. **Điều cuốn sách khiến em thay đổi trong cách nhìn về cuộc sống**
+
+Sau khi đọc xong, điều đầu tiên em muốn thay đổi là cách nhìn về những điều nhỏ trong cuộc sống. Khi học đại học, em có rất nhiều việc phải lo. Có những ngày em chỉ nghĩ đến bài tập, deadline, điểm số, công việc nhóm hoặc những kế hoạch sau khi ra trường. Những việc đó cần thiết, nhưng nếu chỉ tập trung vào chúng, em dễ quên mất việc tận hưởng những khoảng thời gian bình thường.
+
+Cuốn sách làm em nhận ra rằng ký ức đẹp không nhất thiết phải đến từ những sự kiện lớn. Một buổi đi chơi với bạn, một cuộc trò chuyện vui, một lần cùng nhau làm một điều ngốc nghếch hay đơn giản là một ngày không có chuyện gì đặc biệt cũng có thể trở thành ký ức mà sau này mình nhớ mãi.
+
+Em cũng nhận ra rằng trưởng thành không có nghĩa là phải từ bỏ hoàn toàn con người của ngày trước. Em vẫn có thể nghiêm túc với việc học, có trách nhiệm với công việc và suy nghĩ chín chắn, nhưng đồng thời vẫn có thể giữ sự tò mò, khả năng tưởng tượng và sự chân thành. Với em, đó mới là một kiểu trưởng thành mà mình muốn hướng tới.
+
+1. **Những điều em tâm đắc nhất sau khi đọc**
+- Tuổi thơ không chỉ là một khoảng thời gian đã qua mà còn là một phần tạo nên con người của hiện tại.
+- Đôi khi người lớn cần học cách nhìn thế giới bằng sự tò mò và đơn giản hơn.
+- Tình bạn chân thành không cần quá nhiều điều kiện; những kỷ niệm bình thường cũng có thể trở nên rất quý giá.
+- Trưởng thành không đồng nghĩa với việc phải đánh mất sự hồn nhiên và khả năng tưởng tượng.
+- Những điều nhỏ bé trong cuộc sống đáng được trân trọng vì sau này chính chúng có thể trở thành ký ức.
+- Trong kể chuyện và truyền thông, một câu chuyện gần gũi và chân thật có thể tạo ra cảm xúc mạnh hơn một câu chuyện chỉ cố gắng gây ấn tượng.
+1. **Kết luận**
+
+Với em, “Cho tôi xin một vé đi tuổi thơ” không chỉ là một cuốn sách kể về trẻ con. Đây là một cuốn sách khiến người đã lớn nhìn lại chính mình. Em đọc về Cu Mùi, Hải Cò, Tủn và Tí Sún nhưng đôi lúc lại thấy hình ảnh của mình trong đó. Có những chuyện ngày trước mình từng cho là bình thường, đến khi lớn lên mới thấy đó là những ngày rất đáng nhớ.
+
+Em thích cuốn sách vì tác giả không cố gắng đưa ra những bài học quá nặng nề. Những bài học đến từ những chuyện nhỏ và được người đọc tự cảm nhận. Sau khi khép sách lại, điều còn lại trong em không phải là một câu chuyện quá kịch tính mà là cảm giác muốn sống chậm lại một chút, quan tâm hơn đến gia đình, bạn bè và những khoảnh khắc mình đang có.
+
+Nếu thật sự có một tấm vé để trở về tuổi thơ, có lẽ em cũng muốn mua một tấm. Nhưng sau khi đọc cuốn sách này, em hiểu rằng mình không nhất thiết phải quay lại quá khứ. Điều quan trọng hơn là mang theo những điều đẹp nhất của tuổi thơ để bước tiếp. Đó là sự chân thành, tò mò, khả năng tưởng tượng, biết vui với những điều đơn giản và biết trân trọng những người ở bên cạnh mình.
